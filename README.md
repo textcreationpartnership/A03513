@@ -36,10 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-ACHILLES
-SHIELD. Tranſlated as the other ſeuen Bookes
-of Homer, out of his eighteenth
-booke of Iliad
+
 1. To the moſt honored Earle,
 Earle Marſhall.
 
